@@ -8,4 +8,3 @@
 - 📫 How to reach me: t.me/MomussK
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: there's no fun with facts
--->
